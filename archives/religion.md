@@ -1,3 +1,7 @@
+[« back to the wiki index](https://www.reddit.com/r/indonesia/wiki/index)
+
+---
+
 # **Religion And Spirituality**
 
 [[Essay] Buddhism in Indonesia: Not Just a Religion for Ethnic Tionghoa](https://www.reddit.com/r/indonesia/comments/dtb3j5/essay_buddhism_in_indonesia_not_just_a_religion/)

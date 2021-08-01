@@ -1,3 +1,7 @@
+[« back to the wiki index](https://www.reddit.com/r/indonesia/wiki/index)
+
+---
+
 # **AMA**
 
 [PNS dan isu-isu Pemerintahan lainnya silahkan tanya hampir semuanya!!](https://www.reddit.com/r/indonesia/comments/ocsk55/pns_dan_isuisu_pemerintahan_lainnya_silahkan/)

@@ -1,3 +1,7 @@
+[« back to the wiki index](https://www.reddit.com/r/indonesia/wiki/index)
+
+---
+
 # **Finance**
 
 For more threads about finance and economics, please go and consider posting threads to r/finansial.

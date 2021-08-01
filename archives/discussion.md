@@ -1,3 +1,7 @@
+[« back to the wiki index](https://www.reddit.com/r/indonesia/wiki/index)
+
+---
+
 # **Serious Discussions**
 
 [Indonesia: Bangsa dan Negara Realis](https://www.reddit.com/r/indonesia/comments/micnk3/indonesia_bangsa_dan_negara_realis/)

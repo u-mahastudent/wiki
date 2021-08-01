@@ -1,3 +1,7 @@
+[« back to the wiki index](https://www.reddit.com/r/indonesia/wiki/index)
+
+---
+
 # **Learn Indonesian Language?**
 
 [Things to watch for Bahasa Indonesia learners](https://www.reddit.com/r/indonesia/comments/mbtru5/things_to_watch_for_bahasa_indonesia_learners/)

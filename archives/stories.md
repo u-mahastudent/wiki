@@ -1,3 +1,7 @@
+[« back to the wiki index](https://www.reddit.com/r/indonesia/wiki/index)
+
+---
+
 # **Stories and Rants**
 
 For monthly stories or rants thread, please check r/indonesia's [Monthly Rant/Rage Thread](https://www.reddit.com/r/indonesia/search/?q=%22Monthly%20Rant%2FRage%20Thread%22&restrict_sr=1&sort=new) or [Count Your Blessings Thread](https://www.reddit.com/r/indonesia/search/?q=%22Count%20Your%20Blessings%20Thread%22&restrict_sr=1). Don't forget to check [Campfire Corner](https://www.reddit.com/r/indonesia/search/?q=%22campfire%20corner%22&restrict_sr=1) or r/indospooked for more horror stories. For mental health discussions, feel free to post at r/pedulijiwa.

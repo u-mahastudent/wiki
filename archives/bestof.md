@@ -1,3 +1,7 @@
+[« back to the wiki index](https://www.reddit.com/r/indonesia/wiki/index)
+
+---
+
 # **Indonesia best of the year**
 
 [2016 Award](https://www.reddit.com/r/indonesia/comments/5kpzh1/rindonesia_best_of_2016_award/)

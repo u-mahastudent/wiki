@@ -1,3 +1,7 @@
+[« back to the wiki index](https://www.reddit.com/r/indonesia/wiki/index)
+
+---
+
 # **Move to Indonesia?**
 
 [Moving to Indonesia.Need suggestions](https://www.reddit.com/r/indonesia/comments/n44y9k/moving_to_indonesianeed_suggestions/)

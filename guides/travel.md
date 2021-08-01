@@ -1,3 +1,7 @@
+[« back to the wiki index](https://www.reddit.com/r/indonesia/wiki/index)
+
+---
+
 # **Travel to Indonesia?**
 
 [Jaksel Nightlife Guide for Filthy Casuals a.k.a What Your Club Says About You](https://www.reddit.com/r/indonesia/comments/mb964d/jaksel_nightlife_guide_for_filthy_casuals_aka/)

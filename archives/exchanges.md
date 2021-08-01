@@ -1,3 +1,7 @@
+[« back to the wiki index](https://www.reddit.com/r/indonesia/wiki/index)
+
+---
+
 # **Bilateral Dialogue and Cultural Exchange Thread**
 
 [Cultural Exchange with r/Brunei](https://www.reddit.com/r/indonesia/comments/n1kmr0/cultural_exchange_ama_with_rbrunei/)

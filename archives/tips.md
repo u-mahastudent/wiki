@@ -1,3 +1,7 @@
+[« back to the wiki index](https://www.reddit.com/r/indonesia/wiki/index)
+
+---
+
 # **Indonesian Self-Help / Life Pro Tips / Life Hack**
 
 [Tentang Beasiswa S2 n S3 non-LPDP dan non-dinas. [Saya abis diminta untuk jadi narsum tentang beasiswa, barangkali ada yang minat/perlu, berikut repost and edited materi gue. Mayoritasnya untuk kuliah ke-LN, tapi ada beberapa hal yang bisa dipake untuk cari beasiswa dalam negeri kok].](https://www.reddit.com/r/indonesia/comments/mmgny8/tentang_beasiswa_s2_n_s3_nonlpdp_dan_nondinas/)
