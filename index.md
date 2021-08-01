@@ -13,6 +13,7 @@ Before you do anything in this community, please read the rules in the sidebar.
   - [Move to Indonesia?](https://www.reddit.com/r/indonesia/wiki/guides/moving)
   - [Travel to Indonesia?](https://www.reddit.com/r/indonesia/wiki/guides/travel)
   - [Learn Indonesian Bahasa?](https://www.reddit.com/r/indonesia/wiki/guides/language)
+  - [Accessing Reddit from Indonesia](https://www.reddit.com/r/indonesia/wiki/guides/reddit)
 - [Thread Archive](https://www.reddit.com/r/indonesia/wiki/archives)
   - [AMAs](https://www.reddit.com/r/indonesia/wiki/archives/ama)
   - [Pure Indonesian Gold & Worth Mentioned Threads](https://www.reddit.com/r/indonesia/wiki/archives/golden)
