@@ -26,29 +26,35 @@ Grouped by category, sorted alphabetically.
 
 9. r/indolostmedia - pieces of Indonesia lost media
 
-10. r/IndonesiaCirclejerk - Circlejerking
+10. r/indomusic - Anything about Indonesian music
 
-11. r/indonesiakaya - r/indonesia but first world problems
+11. r/IndonesiaCirclejerk - Circlejerking
 
-12. r/indonesiamiskin - third-world country citizen problems only
+12. r/indonesiakaya - r/indonesia but first world problems
 
-13. r/indonesian - Place to learn Bahasa Indonesia/Indonesian language
+13. r/indonesiamiskin - third-world country citizen problems only
 
-14. r/IndonesiaPics - another photography subreddit
+14. r/indonesian - Place to learn Bahasa Indonesia/Indonesian language and translation help
 
-15. r/indospooked - Horror stories
+15. r/IndonesiaPics - another photography subreddit
 
-16. r/indowibu - r/indonesia but weebs
+16. r/IndoR4R - Local version of Redditor for Redditor
 
-17. r/kulineria - Food porn, cooking tips, restaurant review
+17. r/indospooked - Horror stories
 
-18. r/ngeteh - for you camellia sinensis (tea) connoisseur
+18. r/indowibu - r/indonesia but weebs
 
-19. r/pedulijiwa - Psychology, mental health tips (moderators are professionals)
+19. r/kulineria - Food porn, cooking tips, restaurant review
 
-20. r/Perempuan - women circle support, women empowerment
+20. r/ngeteh - for you camellia sinensis (tea) connoisseur
 
-21. r/sudirmanbets - wsb at home
+21. r/pedulijiwa - Psychology, mental health tips (moderators are professionals)
+
+22. r/Perempuan - women circle support, women empowerment
+
+23. r/RisetIndonesia - anything about research related to/from indonesian
+
+24. r/sudirmanbets - wsb at home
 
 
 ## **By Location**
