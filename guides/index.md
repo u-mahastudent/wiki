@@ -1,4 +1,4 @@
-[« back to the wiki index](https://www.reddit.com/r/indonesia/wiki/index)
+[« back to the wiki index](/r/indonesia/wiki/index)
 
 ---
 
@@ -14,6 +14,6 @@ For traveling/moving tips, please do notice the time of thread submission. Examp
 
 There are several categories that this wiki provide.
 
-1. [Move to Indonesia?](https://www.reddit.com/r/indonesia/wiki/guides/moving)
-2. [Travel to Indonesia?](https://www.reddit.com/r/indonesia/wiki/guides/travel)
-3. [Learn Indonesian Bahasa?](https://www.reddit.com/r/indonesia/wiki/guides/language)
+1. [Move to Indonesia?](/r/indonesia/wiki/guides/moving)
+2. [Travel to Indonesia?](/r/indonesia/wiki/guides/travel)
+3. [Learn Indonesian Bahasa?](/r/indonesia/wiki/guides/language)

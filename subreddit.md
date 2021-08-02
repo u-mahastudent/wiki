@@ -1,4 +1,4 @@
-[« back to the wiki index](https://www.reddit.com/r/indonesia/wiki/index)
+[« back to the wiki index](/r/indonesia/wiki/index)
 
 ---
 

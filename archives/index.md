@@ -1,4 +1,4 @@
-[« back to the wiki index](https://www.reddit.com/r/indonesia/wiki/index)
+[« back to the wiki index](/r/indonesia/wiki/index)
 
 ---
 
@@ -14,17 +14,17 @@ There are many interesting threads hidden inside the /r/indonesia and those thre
 
 There are several categories that this wiki provide.
 
-1. [AMAs](https://www.reddit.com/r/indonesia/wiki/archives/ama)
-2. [Pure Indonesian Gold & Worth Mentioned Threads](https://www.reddit.com/r/indonesia/wiki/archives/golden)
-3. [Indonesian Self-Help / Life Pro Tips / Life Hack](https://www.reddit.com/r/indonesia/wiki/archives/tips)
-4. [Bilateral Dialogue and Cultural Exchange Thread](https://www.reddit.com/r/indonesia/wiki/archives/exchanges)
-5. [Serious Discussions](https://www.reddit.com/r/indonesia/wiki/archives/discussion)
-6. [Finance](https://www.reddit.com/r/indonesia/wiki/archives/finance)
-7. [Religion and Spirituality](https://www.reddit.com/r/indonesia/wiki/archives/religion)
-8. [Stories and Rants](https://www.reddit.com/r/indonesia/wiki/archives/stories)
-9. [Photos of /r/indonesia komodos](https://www.reddit.com/r/indonesia/wiki/archives/photos)
-10. [Film and Movie](https://www.reddit.com/r/indonesia/wiki/archives/movies)
-12. [Reddit Awards](https://www.reddit.com/r/indonesia/wiki/archives/bestof)
+1. [AMAs](/r/indonesia/wiki/archives/ama)
+2. [Pure Indonesian Gold & Worth Mentioned Threads](/r/indonesia/wiki/archives/golden)
+3. [Indonesian Self-Help / Life Pro Tips / Life Hack](/r/indonesia/wiki/archives/tips)
+4. [Bilateral Dialogue and Cultural Exchange Thread](/r/indonesia/wiki/archives/exchanges)
+5. [Serious Discussions](/r/indonesia/wiki/archives/discussion)
+6. [Finance](/r/indonesia/wiki/archives/finance)
+7. [Religion and Spirituality](/r/indonesia/wiki/archives/religion)
+8. [Stories and Rants](/r/indonesia/wiki/archives/stories)
+9. [Photos of /r/indonesia komodos](/r/indonesia/wiki/archives/photos)
+10. [Film and Movie](/r/indonesia/wiki/archives/movies)
+12. [Reddit Awards](/r/indonesia/wiki/archives/bestof)
 
 ## **Thread Criteria**
 
