@@ -48,13 +48,15 @@ Grouped by category, sorted alphabetically.
 
 20. r/ngeteh - for you camellia sinensis (tea) connoisseur
 
-21. r/pedulijiwa - Psychology, mental health tips (moderators are professionals)
+21. r/NusantaraRaya - r/indonesia before 20th century
 
-22. r/Perempuan - women circle support, women empowerment
+22. r/pedulijiwa - Psychology, mental health tips (moderators are professionals)
 
-23. r/RisetIndonesia - anything about research related to/from indonesian
+23. r/Perempuan - women circle support, women empowerment
 
-24. r/sudirmanbets - wsb at home
+24. r/RisetIndonesia - anything about research related to/from indonesian
+
+25. r/sudirmanbets - wsb at home
 
 
 ## **By Location**
