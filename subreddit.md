@@ -56,7 +56,9 @@ Grouped by category, sorted alphabetically.
 
 24. r/RisetIndonesia - anything about research related to/from indonesian
 
-25. r/sudirmanbets - wsb at home
+25. r/sejarah - everything about history
+
+26. r/sudirmanbets - wsb at home
 
 
 ## **By Location**
